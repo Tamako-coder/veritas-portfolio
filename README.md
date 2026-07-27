@@ -1,1 +1,0 @@
-# veritas-portfolio
